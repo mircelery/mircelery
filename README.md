@@ -11,5 +11,6 @@ some stuff about me !!
 - ive gotten told that im sometimes dry in conversations so do tell me if it bothers you !! ;(
 - i go by female terms!!! its more preferred than other pronouns but the rest are absolutely okay to use to refer to me
 - i have been into many games so asking me would make my day BUTTT im reaaally into cookie run!!
+- i tend to be likeee.a BIG overthinker whenever i said smt wrong sighhh..,,, PLS TELL ME IF I DO SMTONTING THAT BOTHERS YOU PLSPELA
 
 i think thats it,, slowly tip toes away

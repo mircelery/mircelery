@@ -1,2 +1,2 @@
-![pc5cb99du57c1](https://github.com/user-attachments/assets/c17bef6b-1a77-484f-8e5d-a19a18917d88)
-i love my wifeeeeee...   ,      
+![Tumblr_l_243355928825827](https://github.com/user-attachments/assets/2e0a3c71-01f8-4ac7-bc41-30f123559518)
+i love my wi4feeee3e.1>jufhgegllwkhah
